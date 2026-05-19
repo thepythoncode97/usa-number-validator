@@ -18,7 +18,7 @@
 
 ## 🤝 Get in Touch
 
-if you want to purchase,
+if you want to purchase ,
 
 - Email     : elowenreply@gmail.com
 - Telegram  : [@thepythoncode97](https://t.me/thepythoncode97)
